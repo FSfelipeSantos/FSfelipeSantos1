@@ -1,2 +1,8 @@
 # FSfelipeSantos1
-![](https://tenor.com/pt-BR/view/the-wok-the-rock-dwayne-johnson-gif-23689430)
+
+BEM VINDO AO MEU REPOSTÓRIO 🤞
+
+Dedicado ao compartilhamento de projetos 🗽
+
+
+![](https://media1.tenor.com/m/yLIeWZwYM1gAAAAC/the-wok-the-rock.gif)
